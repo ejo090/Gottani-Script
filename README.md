@@ -1,0 +1,2 @@
+# KORE HA NANI
+* Script WO OKU BASHO
